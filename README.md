@@ -24,7 +24,7 @@ Eu estou utilizando assim para reforçar o vocabulário, leitura, escrita e pron
 ### Rotina:
 Segunda a sexta são aulas (que vão estar no calendar), sabado é reunir a galera pra dar uma conversada e compartilhar oque aprendeu, e domingo é dia de revisão! Reler suas anotações pra dar uma reforçada no aprendizado.
 
-## (Link do Calendar!!!)[https://calendar.google.com/calendar?cid=aDBsdHFqbGVvZWpqdjE3bmkwZ2tmdjk0bjRAZ3JvdXAuY2FsZW5kYXIuZ29vZ2xlLmNvbQ]
+## [Link do Calendar!!!](https://calendar.google.com/calendar?cid=aDBsdHFqbGVvZWpqdjE3bmkwZ2tmdjk0bjRAZ3JvdXAuY2FsZW5kYXIuZ29vZ2xlLmNvbQ)
 
 ## Como funciona o calendar?
 Todos os dias as 7:15 eu vou atualizar o conteudo que vou aprender no dia, e no final do dia enviarei imagens das minhas anotações.
