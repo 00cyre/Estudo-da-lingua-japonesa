@@ -1,6 +1,6 @@
 
 # O que você acha da lingua japonesa?
-<sup>**Façam sugestões nesse readme também sobre meus erros gramaticais e exclarecimentos ^^_^^ ficarei grato**
+<sup>**Façam sugestões nesse readme também sobre meus erros gramaticais e exclarecimentos ^_^ ficarei grato**
 ### Vou contar um pouco do meu planejamento e começo da minha jornada para o aprendizado de uma nova lingua.
 
 ## Contexto
