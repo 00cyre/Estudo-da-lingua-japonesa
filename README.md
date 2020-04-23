@@ -13,14 +13,16 @@ Recebi feedbacks positivos dessa iniciativa e achei bacana compartilhar aqui, qu
 
 Reuni alguns cursos e estou fazendo em conjunto para aprender o Japonês.
 
-[Pimsleur (Pago)](https://www.linkedin.com/company/pimsleur-language-programs/) Japanese (são 3 niveis e são aulas em audio onde você pratica sua pronuncia e aprende novas palavras e regras)
+[Pimsleur (Inglês, Pago)](https://www.linkedin.com/company/pimsleur-language-programs/) Japanese (são 3 niveis e são aulas em audio onde você pratica sua pronuncia e aprende novas palavras e regras)
 
-[Busuu (Pago)](https://www.linkedin.com/company/busuu-com/) Japonês: são vários níveis onde você após assinar consegue fazer um plano de estudo para o nivel de proficiencia que você quer chegar (o meu deu B2 até 16 de novembro :D )
+[Busuu (Português, Pago)](https://www.linkedin.com/company/busuu-com/) Japonês: são vários níveis onde você após assinar consegue fazer um plano de estudo para o nivel de proficiencia que você quer chegar (o meu deu B2 até 16 de novembro :D )
 
-[Duolingo (Gratuito!)](https://www.linkedin.com/company/duolingo/) versão free: é bem bacana o app ele Gamefica o aprendizado de uma nova lingua, todo dia faço minhas metas diarias e tento completar pelo menos 1 nivel(completei hiragana 2 hoje!!!)
+[Duolingo (Português, Gratuito!)](https://www.linkedin.com/company/duolingo/) versão free: é bem bacana o app ele Gamefica o aprendizado de uma nova lingua, todo dia faço minhas metas diarias e tento completar pelo menos 1 nivel(completei hiragana 2 hoje!!!)
 
 Eu estou utilizando assim para reforçar o vocabulário, leitura, escrita e pronuncia!
-  
+
+### Rotina:
+Segunda a sexta são aulas (que vão estar no calendar), sabado é reunir a galera pra dar uma conversada e compartilhar oque aprendeu, e domingo é dia de revisão! Reler suas anotações pra dar uma reforçada no aprendizado.
 
 ## Link do Calendar!!!
 
